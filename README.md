@@ -32,8 +32,8 @@ powers teamwork to make the dream work.
 
 #### Enjoyer of life
 
-I have a beautiful wife and a career I am passionate about. It's hard not to enjoy my life, but just in case ,I always have my humor and positive thinking. Some recent examples:
-* While parked, the right side of my car was crushed by a garbage truck. Two days later someone hit the left side of my wifes car and ran. While others might remeber this as fate being terrrible, I have always found it funny that it looked like I  had crashed into my wifes car.
-* It was our one month wedding aniversary. I get into the car to drive home, start the engine and, do to some faulty wire, the front of my car erupts in flames. After I managed to stop the fire and dealt with towing, I was left with only a good memory of how funny and ironic life is.
+I have a beautiful wife and a career I am passionate about. It's hard not to enjoy my life, but just in case, I always have my humor and positive thinking. Some recent examples:
+* While parked, the right side of my car was crushed by a garbage truck. Two days later someone hit the left side of my wife's car and ran. While others might remember this as fate being terrible, I have always found it funny that it looked like I  had crashed into my wife's car.
+* It was our one-month wedding anniversary. I get into the car to drive home, and start the engine, and, due to some faulty wire, the front of my car erupts in flames. After I managed to stop the fire and dealt with towing, I was left with only a good memory of how funny and ironic life is.
 
 Cars or code can crash and burn, but I am always ready to put out fires and fix things.
