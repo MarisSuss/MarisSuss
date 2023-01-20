@@ -17,20 +17,20 @@ mutual respect are keys to the success of any great project.
 * Cryto currency trading website
 * Slot machine
 
-## My soft skills include
-#### Working under pressure
+## Who am I?
+#### Hard worker
 
 I consider challenges to be the greatest teacher and forward-moving force. JFK 
 quote I live by - "We choose to go to the moon in this decade and do the other 
 things not because they are easy, but because they are hard."
 
-#### Teamwork
+#### Teamworker
 
 Being the eldest of 10 children this skill is a matter of survival. What I have learned 
 when sharing a living space with so many people is that mutual respect is what 
 powers teamwork to make the dream work.
 
-#### Enjoying life
+#### Enjoyer of life
 
 I have a beautiful wife and a career I am passionate about. It's hard not to enjoy my life, but just in case ,I always have my humor and positive thinking. Some recent examples:
 * While parked, the right side of my car was crushed by a garbage truck. Two days later someone hit the left side of my wifes car and ran. While others might remeber this as fate being terrrible, I have always found it funny that it looked like I  had crashed into my wifes car.
