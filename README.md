@@ -11,7 +11,7 @@ mutual respect are keys to the success of any great project.
 * Laravel
 * MySql
 
-## My latest projects
+## My projects
 
 * Internet bank webiste
 * Cryto currency trading website
