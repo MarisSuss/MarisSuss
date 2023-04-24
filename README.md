@@ -15,7 +15,6 @@ mutual respect are keys to the success of any great project.
 
 * Internet bank webiste
 * Cryto currency trading website
-* Slot machine
 
 ## Who am I?
 #### Hard worker
