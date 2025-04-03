@@ -13,8 +13,9 @@ mutual respect are keys to the success of any great project.
 
 ## My projects
 
-* Flower trading hub
 * Cryptocurrency trading website
+* My personal website
+* Flower trading hub
 
 ## Who am I?
 #### Hard worker
