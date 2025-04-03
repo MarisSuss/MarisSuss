@@ -14,7 +14,7 @@ mutual respect are keys to the success of any great project.
 ## My projects
 
 * Cryptocurrency trading website
-* My personal website
+* My website
 * Flower trading hub
 
 ## Who am I?
