@@ -15,7 +15,7 @@ mutual respect are the keys to the success of any great project.
 
 * Cryptocurrency trading website
 * My website marissuss.lv
-* Flower trading hub
+* Flower trading hub [In Progress]
 
 ## Who am I?
 #### Hard worker
