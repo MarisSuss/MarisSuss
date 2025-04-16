@@ -13,8 +13,8 @@ mutual respect are the keys to the success of any great project.
 
 ## My projects
 
-* Cryptocurrency trading website  
 * My website [marissuss.lv](https://marissuss.lv)  
+* Cryptocurrency trading website
 * Flower trading hub [In Progress]
 
 ## Who am I?
