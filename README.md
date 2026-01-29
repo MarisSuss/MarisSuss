@@ -1,22 +1,9 @@
-### Hi there 👋
-
-I am a passionate software developer focused on clean code and being mindful of 
-the future so that my code works great and as time goes on keeps its value. In 
-other words, I am great to work with as I strongly believe that teamwork and 
-mutual respect are the keys to the success of any great project.
-
 ## My programming skills include
 
 * PHP
 * Laravel
 * MySql
 
-## My projects
-
-* My website [marissuss.lv](https://marissuss.lv)  
-* Cryptocurrency trading website
-
-## Who am I?
 #### Hard worker
 
 I consider challenges to be the greatest teacher and forward-moving force. JFK 
